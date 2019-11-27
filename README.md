@@ -6,20 +6,21 @@
 
 
 ![image]https://github.com/qizhoward/Japan14/blob/master/japan.PNG
+----------
 
 Translation from Baidu　　</br>
 
 翻译来自百度              </br>
 翻訳はバイドゥから来ました  </br>
 
-
-
-　Because Chinese prince, Queen Mother, Xi Jinping, Peng Liyuan,                                               </br>
-  I choose to keep the algorithm secret, and the algorithm is kept secret forever.                             </br>
+----------
+Because Chinese prince, Queen Mother, Xi Jinping, Peng Liyuan,                                               </br>
+I choose to keep the algorithm secret, and the algorithm is kept secret forever.                             </br>
    
-  因为中国皇子,皇妈,习近平,彭丽媛,我选择将算法保密,程序算法永久保密.                                                 </br>
-　中国の皇子のため、皇母、習近平、彭麗媛、私はアルゴリズムを秘密にして、プログラムアルゴリズムは永久に秘密にします。       </br>
- 
+因为中国皇子,皇妈,习近平,彭丽媛,我选择将算法保密,程序算法永久保密.                                                 </br>
+中国の皇子のため、皇母、習近平、彭麗媛、私はアルゴリズムを秘密にして、プログラムアルゴリズムは永久に秘密にします。       </br>
+
+---------- 
  
  
  Lenovo laptop, ASUS laptop, Acer laptop,                                                                             </br>
@@ -36,6 +37,8 @@ Translation from Baidu　　</br>
  小米のノートパソコン、ファーウェイのノートパソコン、サムスンのノートパソコン、                                            </br>
  同様に返答しないで、回答をしないで、全権は日本に任せて管理します。                                                       </br>
  
+----------
+
  Desktops, brand desktops, assembly desktops, no reply for the time being, only because of the serious chaos in China    </br>
  
  台式机,品牌台式机,组装台式机,暂不予回复,不做回答,只因中国乱象严重                                                            </br>
