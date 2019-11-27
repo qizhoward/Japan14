@@ -46,6 +46,11 @@ I choose to keep the algorithm secret, and the algorithm is kept secret forever.
  台式机,品牌台式机,组装台式机,暂不予回复,不做回答,只因中国乱象严重                                                            </br>
  デスクトップ・パソコン、ブランドのデスクトップ・パソコン、デスクトップ・コンピュータを組み立てて、しばらく返答しません。          </br>
  
+----------
  
+ China work glasses In the future, there may be only a few for japan. Personal brand　　 </br>
  
+ 中国工作眼镜,只提供少部分.个人品牌　　　                                                   </br>
+ 作業用メガネは、一部しか提供していません。個人ブランド                                       </br>
  
+----------
