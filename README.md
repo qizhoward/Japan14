@@ -6,6 +6,8 @@
 
 
 ![image]https://github.com/qizhoward/Japan14/blob/master/japan.PNG
+
+
 ----------
 
 Translation from Baidu　　</br>
