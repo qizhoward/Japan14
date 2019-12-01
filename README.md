@@ -54,3 +54,12 @@ I choose to keep the algorithm secret, and the algorithm is kept secret forever.
  作業用メガネは、一部しか提供していません。個人ブランド                                       </br>
  
 ----------
+
+ My tooth like as ice ......There's a news ID card ending 26......                                      </br>
+
+我的牙齿像冰一样,我的固牙器简称牙套,是塑料的,石膏做成的,有一条新闻身份证尾号26                                  </br>
+私の歯は氷のようです。私の歯の固形器は歯カバーと言います。ニュースの身分証の最後の番号があります。                </br>
+
+----------
+
+
