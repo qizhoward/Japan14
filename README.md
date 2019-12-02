@@ -62,4 +62,26 @@ I choose to keep the algorithm secret, and the algorithm is kept secret forever.
 
 ----------
 
+ Aston Martin better                                                    </br>
+ 
+ need f4 our Aston Martin Car two color                                 </br>
+ need 5our Aston Martin Car xijinping's                                 </br>
+ 
+ 需要 阿斯顿马丁4个                                                       </br>
+ 需要习4 一个                                                            </br> 
+ 习近平 一个                                                              </br>
+ 
+ アストンマーティン4個が必要です。                                          </br>
+ 京都習わす 勉強します1                                                     </br>
+ 
+----------
 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
+ 
