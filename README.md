@@ -69,7 +69,7 @@ I choose to keep the algorithm secret, and the algorithm is kept secret forever.
  
  需要 阿斯顿马丁4个                                                       </br>
  需要习4 一个                                                            </br> 
- 习近平 一个                                                              </br>
+ 习近平 一个 独立国                                                       </br>
  
  アストンマーティン4個が必要です。                                          </br>
  京都習わす 勉強します1                                                     </br>
