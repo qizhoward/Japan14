@@ -76,8 +76,12 @@ I choose to keep the algorithm secret, and the algorithm is kept secret forever.
  
 ----------
 
- 
- 
+Xiaomi didn't answer the mobile phone question.There is any suspicion of plagiarism </br>
+the death penalty will be imposed directly. </br>
+
+小米手机问题不予回答。设计有剽窃嫌疑可直接判处死刑。</br>
+小米携帯電話問題は回答を与えない。デザインは盗作の疑いがある直接死刑を言います。</br>
+
  
  
  
