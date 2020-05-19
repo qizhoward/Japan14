@@ -87,7 +87,7 @@ the death penalty will be imposed directly. </br>
 I would like to join Japanese nationality</br>
 
 我希望加入日本国籍</br>
-日本国籍に入ります。</br></br>
+日本国籍に入ります。</br>
 日本国籍を希望します。</br>
  
  
