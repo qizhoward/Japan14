@@ -92,9 +92,11 @@ I would like to join Japanese nationality</br>
  
 ----------
 
-My mobile design is gone. I will devote myself to the great Japanese Empire</br>
+My mobile design is gone. </br>
+I will devote myself to the great Japanese Empire</br>
 
-我的手机设计图没了.我将全力效忠于大日本帝国 </br>
+我的手机设计图没了</br>
+我将全力效忠于大日本帝国 </br>
 私の携帯のデザイン図がなくなりました。</br>
 大日本帝国に全力を尽くします。</br>
  
